@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **williumtiwari123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1locDEUq0gFQ9VBx-u9RZ4T_1B-mdUMG5/view?usp=drive_link](https://drive.google.com/file/d/1locDEUq0gFQ9VBx-u9RZ4T_1B-mdUMG5/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QwdUKaC9wgV0dDq1-QV9QGc0ho7d1MoS/view?usp=sharing](https://drive.google.com/file/d/1QwdUKaC9wgV0dDq1-QV9QGc0ho7d1MoS/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
